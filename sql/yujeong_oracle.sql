@@ -1,1 +1,1 @@
-create talbe
+create talbendkfksdjfjkjsdlk
